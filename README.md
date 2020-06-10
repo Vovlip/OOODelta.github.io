@@ -1,0 +1,2 @@
+# OOODelta.github.io
+диплом
